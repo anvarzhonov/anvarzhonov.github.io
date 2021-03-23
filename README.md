@@ -1,1 +1,1 @@
-# anvarzhonov.github.io
+# Курсовая
